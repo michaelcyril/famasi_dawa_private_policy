@@ -20,6 +20,6 @@ To adapt to evolving practices and legal requirements, we periodically update th
 
 ### Contact Us
 
-If you have any questions or concerns about our Privacy Policy or data practices, please reach out to us at contact@famasi-dawa.com. Your privacy and satisfaction are paramount to us.
+If you have any questions or concerns about our Privacy Policy or data practices, please reach out to us at famasidawa@gmail.com. Your privacy and satisfaction are paramount to us.
 
 Thank you for choosing Famasi Dawa for your pharmacy ordering and purchasing needs. We are committed to serving you and ensuring a secure, personalized experience.
