@@ -1,6 +1,6 @@
 ## Famasi Dawa Privacy Policy
 
-Welcome to Famasi Dawa, your premier platform for ordering and purchasing medicines from pharmacies. We prioritize your privacy, especially concerning your health information, and uphold the highest standards of data protection.
+Welcome to Famasi Dawa, your premier platform connecting pharmacies with essential medicines for sale to patients. We value the privacy of all parties involved and maintain the highest standards of data protection.
 
 ### Information Collection
 
